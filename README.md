@@ -3,3 +3,9 @@
 [organs!](https://evangelicalismm.straw.page)
 ⸝⸝
 [Fuck me nya!](https://evander.atabook.org)
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31o563rrzycl36rw6hqygflupvfq&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=b51a00">
+  </a>
+</p>

@@ -1,11 +1,1 @@
- ![image](https://64.media.tumblr.com/620339d01e534fbe9c69e254adf56a27/8bd81c89a7734230-5c/s100x200/5e64093c3a7dd03b89085d47061dc95bc9bdd159.gif)
 
-[organs!](https://evangelicalismm.straw.page)
-⸝⸝
-[Fuck me nya!](https://evander.atabook.org)
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31o563rrzycl36rw6hqygflupvfq&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=b51a00">
-  </a>
-</p>

@@ -10,3 +10,9 @@
 <img width="110" height="65" alt="IMG_1955" src="https://github.com/user-attachments/assets/d8d108b6-c5e0-4c63-858d-deb3f6f95cbb" />
 <img width="110" height="65" alt="IMG_1956" src="https://github.com/user-attachments/assets/a1073719-2364-4257-a542-dcd819fdb7e6" />
 <img width="110" height="65" alt="IMG_1957" src="https://github.com/user-attachments/assets/292d0350-9857-4c19-903d-241f71c869e4" />
+
+$\color{royalblue}{\text{Hihi I’m Evander or Evan for short Please click the links above if you want to know more about me!}}$
+
+<img width="150" height="20" alt="IMG_1964" src="https://github.com/user-attachments/assets/5ba83b33-a492-41f7-b9a7-c23b852da290" />
+
+[☂️Appreciation List💜](https://appreciationlist.straw.page)
